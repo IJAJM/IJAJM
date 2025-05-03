@@ -2,7 +2,7 @@
 
 > _«01010100 01111001 01110000 01101001 01101110 01100111 00100000 01110100 01101000 01110010 01101111 01110101 01100111 01101000 00100000 01110100 01101000 01100101 00100000 01101101 01100001 01110100 01110010 01101001 01111000»_
 
-![Cyber Sniper Banner](https://i.pinimg.com/originals/71/2e/a8/712ea8d0a4a732d0f5ff4597704f7506.gif)
+![Anime Cyber Sniper Boy](https://media.tenor.com/o6DvQ7bVxozAAAAC/sniper-cyberpunk.gif)
 
 ## ░▒▓█⮂ 𝗖𝘆𝗯𝗲𝗿-𝗣𝗿𝗼𝗳𝗶𝗹𝗲 𝗗𝗮𝘁𝗮 ⮃█▓▒░
 
@@ -16,7 +16,7 @@ Designing neon-lit circuits within quantum-lubed switches
 Creating tactical content payloads for the mecha-generation  
 Executing perfect headshots in both typing and anime warfare
 
-## ▰▰▰ 𝙇𝙤𝙖𝙙𝙞𝙣𝙜 �𝙧𝙤𝙩𝙤𝙘𝙤𝙡𝙨...
+## ▰▰▰ 𝙇𝙤𝙖𝙙𝙞𝙣𝙜 𝙋𝙧𝙤𝙩𝙤𝙘𝙤𝙡𝙨...
 - 🔫 **Cyber-Weaponry**:  
   ⌨️ Quantum Response Switches  
   🎮 Holographic Interface Modules  
